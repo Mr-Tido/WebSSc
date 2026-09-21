@@ -1,1 +1,1 @@
-https://www.figma.com/design/bFrJqVlDoTosnzCMqMNCjU/%D0%9C%D0%BD%D0%BE%D0%B3%D0%BE%D1%81%D1%82%D1%80%D0%B0%D0%BD%D0%B8%D1%87%D0%BD%D1%8B%D0%B9-%D1%81%D0%B0%D0%B9%D1%82---%D0%90%D0%B3%D0%B5%D0%BD%D1%82%D1%81%D1%82%D0%B2%D0%BE--Copy-?node-id=10-2&p=f&t=juwi6TJL1iRCDYgs-0
+https://www.figma.com/design/Ewlz11rk1xrCWBwYiQfG1y/Landing-page---%25D0%2594%25D0%25B8%25D0%25B7%25D0%25B0%25D0%25B9%25D0%25BD%25D0%25B5%25D1%2580?node-id=16-206&t=p9nzZSUEIwpHrmLt-0
