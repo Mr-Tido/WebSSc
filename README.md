@@ -1,1 +1,1 @@
-https://www.figma.com/design/SXBwE8OEZT5Jw3LzHhNwcZ/Landing-page---%25D0%2594%25D0%25B8%25D0%25B7%25D0%25B0%25D0%25B9%25D0%25BD%25D0%25B5%25D1%2580?node-id=7020-3&t=Zbo5XnxomEzlkFXM-0
+https://www.figma.com/design/JGrgQQNSEORYaXERcQnyoo/Real-Estate-website-template--Copy-?node-id=2007-3170&t=ZEP2SOhMyMdVoVOD-0
